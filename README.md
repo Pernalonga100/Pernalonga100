@@ -9,3 +9,4 @@ meu nome é Fernanda
 ### Você entrar em contato comigo
 
 00001106284987sp@al.educacao.sp.gov.br
+![](https://tenor.com/pt-BR/view/richard-rios-vem-quebrando-gif)
